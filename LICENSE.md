@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows script with Shotcut for PC | Shotcut for Windows premium Script: AI-enhanced-editing & export-presets. Featuring
 
 
 
